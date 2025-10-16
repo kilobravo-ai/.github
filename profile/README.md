@@ -1,3 +1,3 @@
-# kilobravo.ai 🫍
+# kilobravo.ai ⛛
 
 > Coming soon!
